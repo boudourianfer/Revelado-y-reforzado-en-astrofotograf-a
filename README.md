@@ -1,1 +1,1 @@
-# Revelado-y-reforzado-en-astrofotograf-a
+# Revelado-y-reforzado-en-astrofotografía
